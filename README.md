@@ -29,19 +29,20 @@ Back:
 
 Front:
 
-> Ana tilinde laf etkeniñiz içün çoq sağ oluñız
+> Ana tilinde laf etkeniñiz içün teşekkürler
 
 [Опитування](https://goo.gl/forms/CZhLLtiOyhMrOqmv2).
 
 Back:
 
-> Merhaba!
+> Meraba!
 >
-> Saña ana tiliñde çoqça qonuşmağa yardımcı olmaq isteyim.  
-> Meni, köz ögüne, iş yeriñde yapıştır.  
-> Lütven, maña yardımcı ol, sennen kimde-kim ana tilinde laf etse – oña böyle hatırlamanı hedie et.
+> Saña ana tilinde çoqça qonuşmağa yardımcı olmaq isteyim.  
+> Meni, koz' ogüne, iş yeriñde yapıştır.  
+> Lütfen, maña yardımcı ol, sennen kimde-kim ana tilinde laf etse – oña boyle hatırlamanı ediye et.
 >
-> Ana tiliniñ sayıbı olğanıña aferin.
+> Ana tiliniñ saibi olğanıña aferin.
+
 
 Переклад:
 

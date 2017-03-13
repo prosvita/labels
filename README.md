@@ -37,9 +37,9 @@ Back:
 
 > Meraba!
 >
-> Saña ana tilinde çoqça qonuşmağa yardımcı olmaq isteyim.  
-> Meni, koz' ogüne, iş yeriñde yapıştır.  
-> Lütfen, maña yardımcı ol, sennen kimde-kim ana tilinde laf etse – oña boyle hatırlamanı ediye et.
+> Saña ana tiliñde çoqça qonuşmağa yardımcı olmaq isteyim.  
+> Meni, köz ögüne, iş yeriñde yapıştır.  
+> Lütfen, maña yardımcı ol, sennen kimde-kim ana tilinde laf etse – oña böyle hatırlamanı ediye et.
 >
 > Ana tiliniñ saibi olğanıña aferin.
 
